@@ -1,0 +1,1 @@
+# qopi.shop
